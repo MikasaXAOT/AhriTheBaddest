@@ -1,2 +1,1 @@
-# AhriTheBaddest
-BADDEST
+# NC27
